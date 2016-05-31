@@ -1,3 +1,3 @@
-# paige Im Paige
+# Im Paige
 My birthday is June 4th
 I play softball.
